@@ -7,4 +7,3 @@
 
 
  <p align="center">🕷️☾⋆｡𖦹 °✩⩇⩇:⩇⩇🕸
-  <p align="center"> alt:@corrodedcoffin86
