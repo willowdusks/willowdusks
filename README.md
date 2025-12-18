@@ -7,5 +7,3 @@
 
 
  <p align="center">🕷️☾⋆｡𖦹 °✩⩇⩇:⩇⩇🕸
-
-  <p align="center">[my alt account](https://github.com/corrodedcoffin86)
