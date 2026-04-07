@@ -15,4 +15,4 @@
 
 ◇ 20+ | freely c+h with me | usually offtab | semi-verbal/non-verbal | i don't roleplay | 18+ server most entirely | dni minors
 
-![34532](https://github.com/user-attachments/assets/d0add43c-8360-4598-9988-7e2e10a6bb83)
+![34532](https://github.com/user-attachments/assets/d0add43c-8360-4598-9988-7e2e10a6bb83) ˙˚ʚ(´◡`)ɞ˚˙ ♡ ♡ ♡
