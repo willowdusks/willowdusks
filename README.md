@@ -1,4 +1,5 @@
-## Hi there 👋
+   ˚₊‧꒰ა . ——— ˗ˏˋ ✮ ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚
+![34515](https://github.com/user-attachments/assets/bff9f239-ed0e-4325-b008-f4378e2d8786)
 
 <!--
 **willowdusks/willowdusks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
