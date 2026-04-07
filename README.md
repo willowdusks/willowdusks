@@ -13,6 +13,6 @@
 ![34528](https://github.com/user-attachments/assets/35d2946c-7869-4f0c-84a5-9460ced6888c)
 
 
-◇ 20+ | freely c+h with me | usually offtab | semi-verbal/non-verbal | i don't roleplay | 18+ server most entirely | dni minors | multifandom
+◇ 20+ | freely c+h with me | usually offtab | semi-verbal/non-verbal | i don't roleplay | 18+ server most entirely | dni minors | multifandom ㅡʚɞ
 
 ![34532](https://github.com/user-attachments/assets/d0add43c-8360-4598-9988-7e2e10a6bb83) ˙˚ʚ(´◡`)ɞ˚˙ ♡ ♡ ♡
