@@ -5,7 +5,7 @@
 ![34515](https://github.com/user-attachments/assets/bff9f239-ed0e-4325-b008-f4378e2d8786)
 
 <p align="center">       » [upside down] «
- 0:00 ─〇───── 0:00
+ <p align="center"> 0:00 ─〇───── 0:00
      ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
 <p align="center">   ˚₊‧꒰ა . ——— ˗ˏˋ ✮ ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚
