@@ -6,7 +6,7 @@
 
 <p align="center">       » [upside down] «
  <p align="center"> 0:00 ─〇───── 0:00
-     ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
+   <p align="center"> ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
 
 <p align="center">   ˚₊‧꒰ა . ——— ˗ˏˋ ✮ ˎˊ˗ ——— ˖ ໒꒱ ‧₊˚
 
